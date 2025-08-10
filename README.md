@@ -1,1 +1,1 @@
-# lms
+# Magic LMS Best LMS
